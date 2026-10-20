@@ -215,4 +215,4 @@ Jing is available as a full free version with all features and updates included.
 Start capturing your screen effectively today with Jing! Download now and unleash your creativity.
 
 ---
-**Last updated:** 2026-10-20 18:53:50 UTC
+**Last updated:** 2026-10-20 22:05:54 UTC
